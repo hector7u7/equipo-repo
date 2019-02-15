@@ -5,6 +5,6 @@ Hector Eduardo Sanchez Gutierrez
 
 Jair Orozco Domínguez
 
-Joaquin Andre Chavez Rojo
+Joaquin Andre Chavez Rojo .i.
 
 Jose Alejandro Rocha Gallegos
